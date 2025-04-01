@@ -1,1 +1,0 @@
-# wulkanik-szubienica
